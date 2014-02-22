@@ -73,7 +73,7 @@ Jim lived out his faith in Christ everyday.  You all experienced it.
 
 Many of us are inspired to be more like Jim.  I'll leave you with this question.
 Will you consider why Jim was the way he was?  If Jim were leaning over
-your shoulder would he want you focus on just being a good person?  Jim
+your shoulder would he want you to focus on just being a good person?  Jim
 was all about relationships.  God is all about relationships.
 
 I invite you to look closely at where life is heading. I'm confident that
