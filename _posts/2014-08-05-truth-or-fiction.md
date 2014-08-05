@@ -2,7 +2,7 @@
 
 > Marcus Aurelius: Let us pretend that you are a loving daughter, and I am a good father.
 
-> Lucilla: This is a pleasant fiction, is it not? [1]
+> Lucilla: This is a pleasant fiction, is it not? [imdb]
 
 We want the truth (and we want our fiction).  We want security and significance.  Change seems to be the
 direct enemy of security and significance.  We live in an uncertain world, always changing.  In the west,
@@ -16,7 +16,7 @@ I've placed my trust in something I cannot prove to be true.  There is a lot of 
 
 Trust isn't a binary decision.  It's a slider.
 
-[1]: http://www.imdb.com/title/tt0172495/quotes?item=qt0404426
+[imdb]: http://www.imdb.com/title/tt0172495/quotes?item=qt0404426
 
 
 
