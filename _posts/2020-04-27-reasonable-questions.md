@@ -2,7 +2,9 @@
 
 > Psalm 4:7 Wisdom is supreme—so acquire wisdom, and whatever you acquire, acquire understanding! (NET)
 
-Below, I'm going to ask some **reasonable questions** about what's going on in our world today (April 2020).  If you're concerned about me and my mindset during this time, I've included a list of things that I remember as I've been asking myself these questions.  You have your own worldview and it may not be mine.  
+Below, I'm going to ask some **reasonable questions** about what's going on in our world today (April 2020).  
+
+If you're concerned about me and my mindset during this time, I've included a list of things that I remember as I've been asking myself these questions.  You have your own worldview and it may not be mine.  
 
 Please read the questions and consider or find some answers.  If you're game, tell me your thoughts in an email: my.name@gmail.com.  I've found some answers, let me know if you want to know what I've found.
 
@@ -24,7 +26,7 @@ If you are not a follower of Jesus, seek him out.  He wants to fill your life wi
 
 #### ...COVID-19
 
-![img](https://www.genengnews.com/wp-content/uploads/2020/02/Feb24_2020_CDC_Coronavirus-scaled-e1582556880177.jpg)
+![img](https://www.genengnews.com/wp-content/uploads/2020/02/Feb24_2020_CDC_Coronavirus-scaled-e1582556880177.jpg){:width="600px"}
 
 - What is it?
 - What is the infection rate?
@@ -39,7 +41,7 @@ If you are not a follower of Jesus, seek him out.  He wants to fill your life wi
 
 #### ...the response
 
-![img](https://images.unsplash.com/photo-1587316745621-3757c7076f7b?ixlib=rb-1.2.1&ixid=eyJhcHBfaWQiOjEyMDd9&w=1000&q=80)
+![img](https://images.unsplash.com/photo-1587316745621-3757c7076f7b?ixlib=rb-1.2.1&ixid=eyJhcHBfaWQiOjEyMDd9&w=1000&q=80){:width="600px"}
 
 - What was the response to COVID-19?
 - Given the answers above, how was this response warranted?  How was it unwarranted?
@@ -54,7 +56,7 @@ If you are not a follower of Jesus, seek him out.  He wants to fill your life wi
 - How interconnected are businesses in our modern economy?  How is their purchasing behavior changing? their hiring behavior?
 - If a business is rethinking their entire business from the ground up based on new revenue models (lower than before the lockdowns), how long do you think it will take for them to plan a new strategy and implement it?  Will they be hiring and starting new projects in the meantime?
 
-![img](https://mk0prospectived5pi4l.kinstacdn.com/wp-content/uploads/2015/01/Thinking-Statue-2.png)
+![img](https://mk0prospectived5pi4l.kinstacdn.com/wp-content/uploads/2015/01/Thinking-Statue-2.png){:width="600px"}
 
 ### Conclusion
 
