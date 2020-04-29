@@ -1,3 +1,5 @@
+<!-- originally authored on 04-27-2020 -->
+
 ## Reasonable Questions
 
 > Psalm 4:7 Wisdom is supreme—so acquire wisdom, and whatever you acquire, acquire understanding! (NET)
