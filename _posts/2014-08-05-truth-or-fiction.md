@@ -20,6 +20,3 @@ Trust isn't a binary decision.  It's a slider.
 
 
 
-
-
-

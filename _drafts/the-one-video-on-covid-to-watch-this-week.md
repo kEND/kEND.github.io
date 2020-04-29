@@ -1,0 +1,47 @@
+---
+layout: post
+title: "COVID-19:  the one video to watch this week!"
+date:   2020-04-29 15:55:00
+categories: life virus covid-19
+---
+
+Are you overwhelmed by Covid-19 information?  Are you avoiding it because too much is going on in the rest of your life?
+
+Or maybe your like me and you might be digesting too much Covid-19 information.
+
+Well this is **the one video to watch this week!!**  Trust me, it's worth your time!!
+
+![img](https://www.genengnews.com/wp-content/uploads/2020/02/Feb24_2020_CDC_Coronavirus-scaled-e1582556880177.jpg){:width="400px"}
+
+## The Stage
+
+Accelerated Urgent Care doctors Dan Erickson and Artin Massihi were extensively interviewed by the Bakersfield, CA ABC affiliate on the topic of Covid-19.  They shared scientific data from their own testing and publically available data from several other jurisdictions.  They presented some well-reasoned questions and their conclusions based on their practical expertise in treating sickness. The full interview is informative and presents real data analyzed by professionals.  The full one hour and eight minute video aired on Youtube on the 26th, taken down on the 28th after...
+
+> “The video went **viral, reaching over 5.46 million views**, and sparked debate over recommendations to lift the shelter-in-place order. Even catching the attention of SPaceX CEO Elon Musk.” - [[abc23]]
+
+## The Video
+
+After the video was pulled by YouTube, I found other copies posted.  Most contained just the first 51 minutes.  I found only one copy of the final 17 minutes and YouTube or the person posting it killed the mic of the doctors, so you could only hear the question and not their answers.  By the time you read this, perhaps a full version is up again on YouTube.
+
+Here's a link to the original:  https://www.youtube.com/watch?v=UaTYYk3HxOc
+
+![img](https://www.techlicious.com/images/av/youtube-video-taken-down-700px.jpg)
+
+Watch the original [here](https://www.bitchute.com/video/cz4czSHGNQJu/).  If you're short on time, watch the forbidden final 17 minutes.
+
+> https://www.bitchute.com/video/cz4czSHGNQJu/
+
+## The Question
+
+Ponder this question.  Why would such a reasoned, thoughtful, scientific response be censored off of YouTube?
+
+![img](https://mk0prospectived5pi4l.kinstacdn.com/wp-content/uploads/2015/01/Thinking-Statue-2.png){:width="400px"}
+
+### disclaimers
+
+YouTube is a private company.  I support their right to allow or deny any content of their choice.  The question still stands?  Why is this so dangerous for regular people to watch?  What motivated them to take this down after it hit 5.3 million views?
+
+The hope that I have in Christ gives me confidence that whatever may come, He will be with me.  I do want to be an agent for truth and, like these doctors, I fully support a scientific, reasoned response to all that we face.
+
+[abc23]: https://www.turnto23.com/news/coronavirus/video-interview-with-dr-dan-erickson-and-dr-artin-massihi-taken-down-from-youtube
+
