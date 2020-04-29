@@ -33,15 +33,17 @@ Watch the original [here](https://www.bitchute.com/video/cz4czSHGNQJu/).  If you
 
 ## The Question
 
-Ponder this question.  Why would such a reasoned, thoughtful, scientific response be censored off of YouTube?
+Ponder this question.  Why would such a reasoned, thoughtful, scientific response be censored by YouTube?
 
 ![img](https://mk0prospectived5pi4l.kinstacdn.com/wp-content/uploads/2015/01/Thinking-Statue-2.png){:width="400px"}
 
 ### disclaimers
 
-YouTube is a private company.  I support their right to allow or deny any content of their choice.  The question still stands?  Why is this so dangerous for regular people to watch?  What motivated them to take this down after it hit 5.3 million views?
+1.  YouTube is a private company.  I support their right to allow or deny any content of their choice.  The question still stands.  Why is this so dangerous for regular people to watch?  What motivated them to take this down after it hit 5.3 million views?
 
-The hope that I have in Christ gives me confidence that whatever may come, He will be with me.  I do want to be an agent for truth and, like these doctors, I fully support a scientific, reasoned response to all that we face.
+2.  I believe that no Pandemic justifies taking away basic human rights.  
+
+3.  I'm interested in Covid-19, the response taken by governments, the response of the people to those actions.  I'm ultimately filled with hope because I follow Jesus who set things right in my life.  He desires to set things right in your life.  He will return to set things right in this world.
 
 [abc23]: https://www.turnto23.com/news/coronavirus/video-interview-with-dr-dan-erickson-and-dr-artin-massihi-taken-down-from-youtube
 
