@@ -43,7 +43,7 @@ Ponder this question.  Why would such a reasoned, thoughtful, scientific respons
 
 2.  I believe that no Pandemic justifies taking away basic human rights.  
 
-3.  I'm interested in Covid-19, the response taken by governments, the response of the people to those actions.  I'm ultimately filled with hope because I follow Jesus who set things right in my life.  He desires to set things right in your life.  He will return to set things right in this world.
+3.  I'm interested in Covid-19, the response taken by governments, the response of the people to those actions.  This can overwhelm, but I'm not overwhelmed because I'm ultimately filled with hope in following Jesus who set things right in my life.  He desires to set things right in your life.  He will return to set things right in this world.
 
 [abc23]: https://www.turnto23.com/news/coronavirus/video-interview-with-dr-dan-erickson-and-dr-artin-massihi-taken-down-from-youtube
 
