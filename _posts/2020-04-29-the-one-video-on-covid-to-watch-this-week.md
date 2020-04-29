@@ -5,9 +5,17 @@ date:   2020-04-29 15:55:00
 categories: life virus covid-19
 ---
 
+**Why would YouTube remove a video that garnered 5.3 million views in its first day?**
+
+I watched it and if you watch nothing else, you should watch this video in full.
+
+Watch the reposted original [here](https://www.bitchute.com/video/cz4czSHGNQJu/).  If you're short on time, watch the forbidden final 17 minutes.
+
+## COVID-19 related
+
 Are you overwhelmed by Covid-19 information?  Are you avoiding it because too much is going on in the rest of your life?
 
-Or maybe your like me and you might be digesting too much Covid-19 information.
+Or maybe you're like me and you might be digesting too much Covid-19 information.
 
 Well this is **the one video to watch this week!!**  Trust me, it's worth your time!!
 
@@ -15,7 +23,7 @@ Well this is **the one video to watch this week!!**  Trust me, it's worth your t
 
 ## The Stage
 
-Accelerated Urgent Care doctors Dan Erickson and Artin Massihi were extensively interviewed by the Bakersfield, CA ABC affiliate on the topic of Covid-19.  They shared scientific data from their own testing and publically available data from several other jurisdictions.  They presented some well-reasoned questions and their conclusions based on their practical expertise in treating sickness. The full interview is informative and presents real data analyzed by professionals.  The full one hour and eight minute video aired on Youtube on the 26th, taken down on the 28th after...
+Accelerated Urgent Care doctors Dan Erickson and Artin Massihi were extensively interviewed by the Bakersfield, CA ABC affiliate on the topic of Covid-19.  They shared scientific data from their own testing and publically available data from several other jurisdictions.  They presented some well-reasoned questions and their conclusions based on their practical expertise in treating sickness. The full interview is informative and presents real data analyzed by professionals.  The full one hour and eight minute video aired on Youtube on the 26th and was taken down on the 28th after...
 
 > “The video went **viral, reaching over 5.46 million views**, and sparked debate over recommendations to lift the shelter-in-place order. Even catching the attention of SPaceX CEO Elon Musk.” - [[abc23]]
 
