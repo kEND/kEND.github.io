@@ -19,7 +19,7 @@ Long-form is the antithesis of social media and news blurbs and quotes out of co
 
 The best kind of long-form content comes from primary sources.  Look for content where the one sharing the content supports assertions and facts with links to primary documents or documents that are substantiated.
 
-![img](https://www.businessblogshub.com/wp-content/uploads/2019/03/restaurant.jpeg){:width="800px"}
+![img](https://www.businessblogshub.com/wp-content/uploads/2019/03/restaurant.jpeg){:width="630"}
 
 Do you want to be influenced?  Do you want to be influenced without being aware that is happening?  **Invest time in digesting long-form content**, ideally from primary sources.  
 
