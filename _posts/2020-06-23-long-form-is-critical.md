@@ -19,7 +19,7 @@ Long-form content is the antithesis of social media and news blurbs and quotes o
 
 The best kind of long-form content comes from primary sources.  Look for content where the author supports assertions and facts with links to primary documents or documents that are substantiated.
 
-![img](https://www.businessblogshub.com/wp-content/uploads/2019/03/restaurant.jpeg){:width="630"}
+![img](https://www.businessblogshub.com/wp-content/uploads/2019/03/restaurant.jpeg){:width="630px"}
 
 Do you want to be influenced?  Do you want to be influenced without being aware that is happening?  Instead, **invest time in digesting long-form content**, ideally from primary sources.  
 
@@ -66,7 +66,7 @@ There's a mix here of COVID-19 and George Floyd/BLM related material.
 	- information is straight forward to verify from other sources
 	- the presenter does share his opinions...  Can you look past that to digest the info?
 
--------
+![img](https://christianindex.org/wp-content/uploads/2017/08/fake-news-facts-ftr-1024x585.jpg){:width="630px"}
 
 ## On Fact Checking sites
 
