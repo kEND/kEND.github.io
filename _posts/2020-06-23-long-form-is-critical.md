@@ -72,4 +72,4 @@ There's a mix here of COVID-19 and George Floyd/BLM related material.
 
 Are you tempted to rush off to a fact checking site?  Feel free to do so, but ask yourself this?  Who is checking the fact checkers?  You can choose to outsource your thinking to others, if you wish.  Fact checking sites, in my opinion, provide a false sense of security.  
 
-If you see fact checking sites in action, watch this:  [Fact Check: Polio Vaccines, Tetanus Vaccines, and the Gates Foundation](https://youtu.be/HaHuTNh8fAo)
+If you want to see fact checking sites in action, watch this:  [Fact Check: Polio Vaccines, Tetanus Vaccines, and the Gates Foundation](https://youtu.be/HaHuTNh8fAo)
