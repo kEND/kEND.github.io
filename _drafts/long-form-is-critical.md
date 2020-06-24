@@ -19,6 +19,8 @@ Long-form is the antithesis of social media and news blurbs and quotes out of co
 
 The best kind of long-form content comes from primary sources.  Look for content where the one sharing the content supports assertions and facts with links to primary documents or documents that are substantiated.
 
+![img](https://www.businessblogshub.com/wp-content/uploads/2019/03/restaurant.jpeg){:width="400px"}
+
 Do you want to be influenced?  Do you want to be influenced without being aware that is happening?  **Invest time in digesting long-form content**, ideally from primary sources.  
 
 ## Why is it important?
@@ -26,6 +28,8 @@ Do you want to be influenced?  Do you want to be influenced without being aware 
 Seeking long-form information is important _because_ doing so can help you rebuild / retrain / strengthen your critical thinking process!
 
 Two types of thinking are described in this [video](https://www.facebook.com/DelawareBible/videos/3335533919813759/?vh=e&d=n).  The vlogger presents a challenge to his audience.  He doesn't address what he finds wrong in a popular, highly-shared video.  Rather he points out the approach and asks his audience to evaluate the video based on two types of thinking.
+
+![img](https://64wns2x8iid30oee92to0f91-wpengine.netdna-ssl.com/wp-content/uploads/2011/05/topdown3.png){:width="400px"}
 
 Simply knowing that these two types of thinking exist helps us think about our own thinking.
 
