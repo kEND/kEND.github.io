@@ -27,13 +27,13 @@ Do you want to be influenced?  Do you want to be influenced without being aware 
 
 Seeking long-form information is important _because_ doing so can help you rebuild, retrain, or strengthen your critical thinking process!
 
-Two types of thinking are described in this [video](https://www.facebook.com/DelawareBible/videos/3335533919813759/?vh=e&d=n) ([Watch it now on Facebook!](https://www.facebook.com/DelawareBible/videos/3335533919813759/?vh=e&d=n)).  First, like-an-engineer: 1) gather data, 2) analyze, and 3) form conclusions.  Secord, like-a-defense-attorney:  1) form conclusions, 2) find data to support conclusions, 3) and reject data that contradicts conclusions.
+Two types of thinking are described in this [video](https://www.facebook.com/DelawareBible/videos/3335533919813759/?vh=e&d=n) ([Watch it now on Facebook!](https://www.facebook.com/DelawareBible/videos/3335533919813759/?vh=e&d=n)).  First, like-an-engineer: 1) gather data, 2) analyze, and 3) form conclusions.  Second, like-a-defense-attorney:  1) form conclusions, 2) find data to support conclusions, 3) and reject data that contradicts conclusions.
 
-The vlogger presents a challenge to his audience.  He doesn't address what he finds wrong in a popular, highly-shared video.  Rather he points out the approach and asks his audience to evaluate the video based on two types of thinking.
+The vlogger presents a challenge to his audience.  He doesn't address what he finds wrong in the popular, highly-shared video.  Rather he points out the approach and asks his audience to evaluate the video based on the two types of thinking he shared.
 
 ![img](https://64wns2x8iid30oee92to0f91-wpengine.netdna-ssl.com/wp-content/uploads/2011/05/topdown3.png)
 
-Simply knowing that these two types of thinking exist helps us think about our own thinking.
+Simply knowing that these two types of thinking exist helps us better understand our own thinking.
 
 Whether you take the vlogger's challenge with the "Holy Post - Race in America" video or not, I challenge you to (1) pick one of the items below and (2) see if you can set aside what you know or think you know and (3) digest the content fully from start to finish.  Jot down questions that come to mind and further research you might do.  What initial conclusions can you make from the content shared?
 
@@ -66,7 +66,7 @@ There's a mix here of COVID-19 and George Floyd/BLM related material.
 	- information is straight forward to verify from other sources
 	- the presenter does share his opinions...  Can you look past that to digest the info?
 
-	
+-------
 
 ## On Fact Checking sites
 
