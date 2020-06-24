@@ -1,72 +1,67 @@
 ---
 layout: post
-title: "The long-form is critical!"
+title: "Seek the long-form to critical thinking!"
 date:   2020-06-23 15:55:00
 categories: life thinking long-form
 ---
 
-**Am I thinking critically about the topic at hand or am I reacting to provacative communication?**
+In these trying times, we need some help!  There's too much going on at one time and we're off balance.  Will the next crisis hit us like these last two?
 
-![img](https://mk0prospectived5pi4l.kinstacdn.com/wp-content/uploads/2015/01/Thinking-Statue-2.png){:width="400px"}
+Today I want to convince you to take a step back and let some things go, **so that** you can embrace the long-form of information and regain/strengthen your capacity for critical thinking.
 
-2020 seems to be the year of large disruptive events complete with a huge bombardment of information.  SARS-ncov-2.  COVID-19.  Lockdowns.  Economic Impact.  George Floyd killing.  Protestors.  Riots.  Antifa.  BLM.  CHAZ.
+Think of this like gardening.  If you trim the suckers off your tomato plant, you'll achieve more awesome tomatoes.  
 
-In addition to all of that, many of us are trying to parent, work-from-home, find a job, deal with family or health issues.  Our time is finite and precious.  **How can we process all of this?  How can we evaluate all the messages coming our way in a productive manner?**  
+So, dive in if you chose.  Reduce your intake of small tidbits of news and dig in more deeply on one or two issues.
 
-**Seeking out and digesting long-form, primary sources where possible is the key.**
+## What is the long-form?
 
-> As a very important aside, I believe there is significant, real evidence for placing our trust in Jesus.  If you use the method described in this post, with an open mind, you can find peace and hope from the Creator of the universe.
+Long-form is the antithesis of social media and news blurbs and quotes out of context.  Reading a book.  Reading an article.  Watching or listening to an interview.  The long-form occurs when the interviewee is given the time to fully express what they know and the surrounding context.  
 
-## A recent example:  the slavery / racism question
+The best kind of long-form content comes from primary sources.  Look for content where the one sharing the content supports assertions and facts with links to primary documents or documents that are substantiated.
 
-...
+Do you want to be influenced?  Do you want to be influenced without being aware that is happening?  **Invest time in digesting long-form content**, ideally from primary sources.  
 
-## The need for critical thinking and real face-to-face discussion
+## Why is it important?
 
-2020 has been (and will continue to be) a year where we are bombarded with messages about very important topics.  A pandemic. Lockdowns. Jobs and the economy.  The killing of George Floyd.  Protests. Riots. Antifa. BLM. CHAZ.
+Seeking long-form information is important _because_ doing so can help you rebuild / retrain / strengthen your critical thinking process!
 
-Do you feel like a boxer who's taken a couple too many punches?  Are you disoriented?  Will another punch land?
+Two types of thinking are described in this [video](https://www.facebook.com/DelawareBible/videos/3335533919813759/?vh=e&d=n).  The vlogger presents a challenge to his audience.  He doesn't address what he finds wrong in a popular, highly-shared video.  Rather he points out the approach and asks his audience to evaluate the video based on two types of thinking.
 
-A lot is happening in our world.  Problems and crises arise.  Politicians and protestors and provactuers take action.  We bear the consequences.
+Simply knowing that these two types of thinking exist helps us think about our own thinking.
 
-Do you feel the pressure pushing you to align with a certain viewpoint on these topics?  Do you feel the desire to talk about these challenging issues, but you fear being judged because you may question the narative (or even pose the wrong question)?
+Whether you take Scott's challenge with the Holy Post - Race in America or not, I challenge you to (1) pick one of the items below and (2) see if you can set aside what you know or think you know and (3) digest the content fully from start to finish.  Jot down questions that come to mind and further research you might do.  What initial conclusions can you make from the content shared?
 
-This is an election year and it certainly seems that with each of these major crises, we are pushed into oposing camps. 
+There's a mix here of COVID-19 and George Floyd/BLM related material.
 
-What is at risk?  Critical thinking and reasoned discussion are at risk.  Why?
+## Examples
 
-## Polictians, Political Parties, and Movements all benefit when we set aside critical thinking
+- [Guard's eye view of Seattle riots](https://www.theorganicprepper.com/truth-seattle-riot/)  
+	- Facebook post source has been deleted or changed.
+	- Story seems plausible given the details shared about being a guardsman.
+	- Author of the article also wrote this encouraging readers to digest another view:
 
-Both sides of the political divide want you to be upset and to be voting.  If we kick this guy out, our guy will come in and set things straight!  If we don't support our guy, the crazies will take over and the world will come to an end!  Vote! Vote! Vote!
+	> Of course, there are two sides to every story and it’s important to see both. Here’s an [on-the-ground video](https://www.facebook.com/tracy.klinkroth/videos/10158529888828454/?hc_location=ufi) of the CHAZ area. You do not have to be logged in to watch it.
 
-Voting may or may not be the best course of action.  Certainly reasoned thought, critical thinking, seeking to understand the real issue at hand, discussing various viewpoints--these things should proceed any action if we want that action to be just and productive.
+- [Whitney Davis...a Seattle resident and happens to live down the street from the Capitol Hill Autonomous Zone](https://overcast.fm/+ViVNWpUV0/1:13:30)
+	- perspective from a local on CHAZ
 
-## The long-form
+- [The (Undercover) Epicenter Nurse](https://youtu.be/UIDsKdeFOmQ)
+	- powerful look inside one NYC hospital during the COVID-19 crisis 
+	- worth every minute
+	- the interviewers give her time to share and ask her tough / clarifying questions
 
-An answer to this is to seek the long-form.  Twitter and Facebook and other social media are geared toward quickly sharing short pieces of information.  TV news is time constrained.  Political ads are clipped and supershort.  Quotes and photos are taken out of context are presented to promote a conclusion.
+- [Defund the Police **Unions**](https://www.youtube.com/watch?v=S23DiBIHw1g)
+   - not long-form
+   - worthy of more research
+   - presenting data we don't hear in the popular narrative
 
-The long-form is either an interview where a genuine discussion occurs or a longer written artical where the author is able to fully make their point and support it with references.  Ideally the long-form includes primary sources, eye-witnesses or experts in the field who are actually in the field.
+- [History of Slavery](https://youtu.be/31E1gHowYcA)
+	- tons of information shared
+	- information is straight forward to verify from other sources
+	- the presenter does share his opinions...  Can you look past that to digest the info?
 
-I'll link to some example below.
+## On Fact Checking sites
 
-## Processing this information
+Are you tempted to rush off to a fact checking site?  Feel free to do so, but ask yourself this?  Who is checking the fact checkers?  You can choose to outsource your thinking to others, if you wish.  Fact checking sites, in my opinion, provide a false sense of security.  
 
-How we approach information is very important.  Here is a video describing two ways of thinking.  The context is related to a popular video on racism.  The vlogger is highlighting the ways of thinking that are available to us and he's recommending highly that we take that into account.  
-
-[link to facebook vid]
-
-1.  Collect data
-2.  Analyze data
-3.  Form conclusions supported by data
-
-Versus
-
-1.  Form conclusion
-2.  Find sources of data that support conclusion
-3.  Reject sources of data that do not support conclusion
-
-## my take away
-
-To come together to overcome these crises, we must become better at using critical thinking and entering into real discussion with one another.
-
-
+If you see fact checking sites in action, watch this:  [Fact Check: Polio Vaccines, Tetanus Vaccines, and the Gates Foundation](https://youtu.be/HaHuTNh8fAo)
