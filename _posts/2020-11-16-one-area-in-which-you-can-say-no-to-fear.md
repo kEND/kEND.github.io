@@ -2,6 +2,7 @@
 layout: post
 title: "I found ONE Area in which You can Say NO to Fear! 'Can I have the keys Mom?'"
 categories: life thinking covid-19
+date:   2020-11-16 16:45:00 -0400
 ---
 
 ## There are no temporal guarantees to health and well-being.
