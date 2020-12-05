@@ -2,6 +2,7 @@
 layout: post
 title: Why I don't vote, Why I voted
 categories: thinking voting
+date:   2020-12-05 11:45:00 -0400
 ---
 
 ## On why I don't vote in national elections...
