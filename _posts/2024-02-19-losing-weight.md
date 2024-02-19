@@ -9,6 +9,6 @@ I heard this on a podcast and cannot take credit for it.
 
 This is the way the government and financial press talk about inflation.  Thank goodness they got their "weight-gain" under control.  Inflation is down.  What about prices?
 
-I recently went to McDonald's for the first time in forever.  I was inspired to do so because I watch a clip of a similar shopping trip in Moscow.  For $7 (in rubles) the video host purchased two cheeseburgers, large fries, large cola, and a piece of cake.  For that same $7, I purchased a McGriddle (yum!) and an extra small soda.  In Columbus...   
+I recently went to McDonald's for the first time in forever.  I was inspired to do so because I watched a clip of a similar shopping trip in Moscow.  For $7 (in rubles) the video host purchased two cheeseburgers, large fries, large cola, and a piece of cake.  For that same $7, I purchased a McGriddle (yum!) and an extra small soda.  In Columbus...   
 
-Whether it is this administration or the prior one or the next, we need to take back real definitions.  A decline in the rate of inflation means prices are continuing to rise ON TOP of the increases we've experienced over that last several years.  Our friend may need an intervention.
+Whether it is this administration or the prior one or the next, we need to take back real definitions.  A decline in the rate of inflation means prices are continuing to rise ON TOP of the increases we've experienced over the last several years.  Our friend may need an intervention.
